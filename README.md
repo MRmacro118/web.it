@@ -14,4 +14,4 @@ We constantly strive to bring new ideas to life and develop projects that inspir
 
 ---
 
-Feel free to explore our projects and get in touch for
+Feel free to explore our projects and get in touch for collaboration, partnership opportunities, or to learn more about how we can help
